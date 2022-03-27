@@ -1,1 +1,1 @@
- 🌸 明日の朝あたり 世界を変えにいこうかね 🌸  
+ Do not go gentle into that good night 💫  
